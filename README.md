@@ -5,3 +5,9 @@
 - 🫶 How to reach me: Discord, Instagram, Twitter, SimplyPlural
 - 🏳️‍🌈 Pronouns: HE/BANDAGE/THEIRS/INJURY/CRY
 - 🤸‍♀️ Fun fact: I am quite flexible bodily
+
+
+- 💽 Orientation(s): Demiromantic, Ace spec
+- 🫥 Gender(s): Boyflux, Transmasc, Somethingmasc,
+Nurseboyic, Deergender, Starboy, Sex pun aceic,
+Hatergender, Hornjewelryaesic, Unprononxeno
